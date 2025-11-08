@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Amritanshu Priyadarshi
 **A student at IIITL**
 
-Email Me 👉 ✉️ **amritanshupersonal@.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **amritanshupersonal@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 
 ## 🌐 Socials:
